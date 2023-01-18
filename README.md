@@ -1,1 +1,1 @@
-BAG BAG
+BAG
